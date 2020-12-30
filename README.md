@@ -1,1 +1,0 @@
-# viktorglemne.github.io
